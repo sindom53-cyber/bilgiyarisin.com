@@ -1,0 +1,2 @@
+# bilgiyarisin.com
+bilgiyarisi
